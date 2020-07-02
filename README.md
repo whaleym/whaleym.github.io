@@ -1,1 +1,1 @@
-# whaleym.github.io
+# whaley's personal blog
